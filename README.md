@@ -1,2 +1,0 @@
-# Chantel-s-makeup
-Website
